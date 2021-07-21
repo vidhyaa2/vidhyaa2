@@ -6,6 +6,5 @@
 - 📫 How to reach me:
 Email[ vidhyaselvva@gmail.com]
 Insta[ vidhya.subi]
-- ✍️I'm much more interested in Writing✨
- ...
+- ✍️I'm much more interested in Writing✨.
 
